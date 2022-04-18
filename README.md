@@ -1,1 +1,1 @@
-# Hava-Sicakli-ina-G-re-Etkinlik-nerme
+# Hava-Sicakligina-Gore-Etkinlik-Onerme
