@@ -1,0 +1,1 @@
+# Hava-Sicakli-ina-G-re-Etkinlik-nerme
